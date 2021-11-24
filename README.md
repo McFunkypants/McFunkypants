@@ -1,3 +1,3 @@
-### Christer "Mcfunkypants" Kaitila
+### Christer "McFunkypants" Kaitila
 
-Optimist. Game developer since 1993. I love game jams, and have contributed to over 110 game projects.
+Optimist. Game developer since 1993. I love game jams, and have contributed to over 120 game projects.
